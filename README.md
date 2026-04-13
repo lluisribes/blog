@@ -20,7 +20,7 @@ Aquest arxiu recull més de **15 anys d'inquietuds** (des de maig del 2005) estr
 
 ## English
 
-This GitHub repository serves as a **complementary safeguard** for the content originally published at [www.lluisribes.net](https://www.lluisribes.net) [3, 4]. Its primary goal is to provide a durable and accessible backup of the blog's information in a **universal format (Markdown)**.
+This GitHub repository serves as a **complementary safeguard** for the content originally published at [www.lluisribes.net](https://www.lluisribes.net). Its primary goal is to provide a durable and accessible backup of the blog's information in a **universal format (Markdown)**.
 
 By using Markdown, the content remains tool-agnostic, easily readable by personal knowledge management apps (such as Obsidian), and optimized for Large Language Models (LLMs) and RAG pipelines.
 
