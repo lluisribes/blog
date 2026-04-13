@@ -1,0 +1,9 @@
+<figure id="attachment_3394" aria-describedby="caption-attachment-3394" style="width: 1189px"><a href="http://www.lluisribes.net/wp-content/uploads/2016/12/arbre_Vallfogona_ripolles.jpg"><img loading="lazy" decoding="async" src="arbre_Vallfogona_ripolles.jpg" alt="arbre_vallfogona_ripolles"></a><figcaption id="caption-attachment-3394">Vallfogona – <a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noopener noreferrer">Lluís Ribes i Portillo (cc)</a></figcaption></figure>
+
+\[…\]
+
+Sol entre tants …  
+Orb entre llums, …  
+Sord entre sons, …
+
+###### (fragments extrets de versos de [J.V. Foix](https://ca.wikipedia.org/wiki/Josep_Vicen%C3%A7_Foix_i_Mas))

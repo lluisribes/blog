@@ -1,0 +1,17 @@
+Hola,
+
+os dejo la editorial que Acció Cultural emite informando de la situación de la multa desproporcionada que la Generalitat Valenciana le ha puesto tras luchar y esforzarse durante 23 años a mantener el canal de televisión en Valencia de [TV3](http://www.tv3.cat/), un canal de calidad de la que estoy orgulloso de tener y pagar con mis impuestos aquí en Cataluña.
+
+Acció Cultural es una asociación que entre muchas cosas tiene toda una red de casales culturales que si no logra pagar la multa se verá en serio peligro. En [www.acpv.cat](http://www.acpv.cat/) podrás encontrar toda la información para ayudar. Yo he optado por ayudar con los bonos y por difundir el mensaje . Si quieres ayudar como mínimo difundir el mensaje no te costará nada.
+
+Lluís Ribes i Portillo
+
+La editorial:  
+[![](banner-internet-solidaria-OK-300x37.jpg)](http://acpv.cat/ajudemacpv/ajudes-dp1)  
+“Una multa contra tots: en solidaritat amb Acció Cultural
+
+El passat 17 de febrer, Acció Cultural del País Valencià (ACPV) es va veure obligada a cessar les emissions de TV3 al País Valencià, després de 26 anys. Durant aquest temps, TV3 havia esdevingut una oferta televisiva normalitzada al País Valencià, on s’ha distingit per la seua qualitat i pel fet de ser una de les poques ofertes audiovisuals en català.
+
+Malgrat això, el president Francisco Camps va decidir, ara fa quatre anys, obrir una sèrie d’expedients administratius contra l’entitat responsable d’aquestes emissions, Acció Cultural, cosa que s’ha traduït en una llarga persecució política i econòmica. El passat mes d’octubre, l’entitat ja va haver de pagar 126.943,90 euros per satisfer una primera multa, i ara s’enfronta a dues multes més que sumen vora 800.000 euros (dels quals ja n’ha pagat 130.000), una quantitat absolutament desproporcionada per a una associació cultural sense ànim de lucre la continuïtat de la qual pot posar en perill.  
+Durant aquests quatre anys, Acció Cultural ha fet patent l’amplíssim suport a TV3 al País Valencià, fins a arribar a l’èxit de la manifestació del passat 16 d’abril a València. En aquest sentit, cal també recordar les 651.650 signatures recollides per la Iniciativa Legislativa Popular (ILP) “Televisió sense Fronteres” per legalitzar la recepció de totes les televisions en català en el conjunt del domini lingüístic, i que ara podria entrar a tràmit parlamentari al Congrés espanyol.  
+Tant el projecte de llei impulsat per la ILP com el recurs que Acció Cultural ha presentat davant el Tribunal Suprem poden acabar donant la raó a l’entitat en aquest conflicte artificial; però, de moment, Acció Cultural ha de pagar les multes que encara té pendents si no vol patir l’embargament dels seus comptes corrents i béns mobles i immobles. Davant aquesta greu situació, el nostre deure és col·laborar a fer front col·lectivament a una multa que en realitat és contra tots els que creiem en la pluralitat informativa i la llibertat d’expressió. Per això, avui, diferents mitjans publiquem aquesta crida pública perquè feu una donació solidària a Acció Cultural ([www.acpv.cat](http://www.acpv.cat/)): així com junts vam aconseguir les 651.650 signatures per a la ILP, junts hem de reunir els diners necessaris per garantir la continuïtat d’Acció Cultural.”

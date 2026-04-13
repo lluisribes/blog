@@ -1,0 +1,18 @@
+Al final de unas horas callejeando camino a casa y en la esquina de Pelayo con la pequeña calle Gravina que baja al Raval un chico joven aguarda con un ramo de flores en su mano. Es la hora en punto, el chico de tez morena, fuerte, con su expresión un tanto colegial y una arreglada barba y pelo corto. Su polo azul a rayas blancas por fuera de sus vaqueros le delata, sin duda, chico inocente. Está contento pero contenido y de tanto en tanto pasa alguna señora mayor que se para, se le queda mirando y algo le dice de ese ramo de flores. Él sonríe y parece dar unas gracias.
+
+Los minutos pasan de la hora en punto, cinco ya son y comienza a moverse impacientemente en su escondite que le proporciona la esquina de la calle Gravina. Por la ancha calle de Pelayo pasan decenas de personas. De izquierda a derecha de deracha a izquierda y alguna señora mayor que vuelve a pararse y decirle un piropo. Pero su expresión ya no refleja seguridad, y sus pasitos hacia delante y hacia atrás muestran los nervios que van. Ya no sonríe, más bien parece estar preocupado porque los minutos pasan.
+
+Pasan siete minutos de la hora en punto, el ramo ya no lo coge con firmeza, brazos caídos cuando una chica rubía de piel blanca y caderas anchas bajo una falda gris que a la rodilla le llega y protegida por una chaquetilla de punto azul anda despistada por la calle Pelayo. Busca algo porque se para justo antes de la calle Gravina, se gira mira a uno y otro lado de la calle a la vez que pasan decenas de personas de izquierda a derecha y de derecha a izquierda. No encuentra lo que busca. Da un paso más y se asoma a la calle Gravina y de la sombra de la confusión aparece el encuentro, allí están los dos. El chico agarra con firmeza el ramo.
+
+La chica está sorprendida, parada y el chico le da un abrazo con un beso en la mejilla que la chica no parece corresponder con tanto afecto. Él extiende el brazo derecho con el ramo hacia ella mientras levanta su brazo izquierdo. Ella coge el ramo con una falsa indiferencia. La calle no me permite oír las palabras pero sí mi imaginación que como si de un traductor que tuviera a mi lado se tratara me hace cómplice de la siguiente conversación:
+
+¿Por qué me has traído flores? – dice ella  
+Porque te quiero – responde contundentemente el chico
+
+En ese momento la chica se avalanza sobre él, le da un beso en la mejilla, le rodea con fuerza con sus brazos el ancho cuello y reposa su cabeza en el hombro derecho del chico a la vez que cierra sus ojos. Él, con un fuerte brazo la sujeta por la espalda y la trae a su dorso y con el otro brazo le acaricía durante los minutos que sus cuerpos balancean juntos.
+
+Se separan, se miran, y él le acaricia su rostro como si un artista hubiera finalizado una bella escultura de marmól blanco. Le acaricia el moflete con la otra mano y de repente con las dos manos bloquea esa con talento y le da un beso en los labios. Se separan. Ella no se inmuta, él estira los brazos. Se miran y ella vuelve a avalanzarse contra él. Esta vez con más decisión si cabe aún poniéndose levemente de puntillas para llegar mucho más alto a ese chico que lo tiene entre sus brazos como si no quisiera tener nada más mas sí su amor. Se abrazan de nuevo, para al cabo de una eternidad separarse.
+
+Vuelve haber una ligera distancia entre los dos cuerpos. Entonces, el de rodea su cuello con el brazo izquierdo a la vez que arquea su brazo derecho para que ella pase por la cintura del chico ese brazo que deslizándose por detrás acabará haciendo que las manos de ambos se encuentren en el costado del chico, inocente.
+
+Bajan caminando calle abajo él, ella y el ramo desapareciendo en la confusa sombra de la noche, pero juntos.

@@ -1,0 +1,10 @@
+[![](La-2Bchica-2Bdel-2BAlka-199x300.jpg)](http://www.lluisribes.net/wp-content/uploads/2011/06/La-2Bchica-2Bdel-2BAlka.jpg)“La noia de l’Alka” – Lluís Ribes i Portillo (c)
+
+India 2009. Nos disponemos a realizar una excursión a la ciudad budista de Sarnath a diez quilómetros de Varanasi. Nos alojamos en el Hotel Alka al pie del sagrado río Ganges y nos dirigimos a la recepción para negociar la contratación de un taxi. Era un día muy caluroso, daba respeto salir del hotel con esa calor pero teníamos que marchar. De repente veo a una chica debajo de la escalera. La escalera sube desde el patio principal a la primera planta creando un pequeño rincón tras tras la barra improvisada de refescos para los turistas que se alojan en el Alka. En ese rincón, ella, en silencio, sentada sobre su pierna izquierda haciendo una labor para el hotel. Me acerco y le pido permiso para hacerle una foto. Sin decir una palabra asiente con la cabeza y posa. La foto se hace. Su mirada se clava en la tarjeta de memoria de la cámara, posteriormente en mi memoria como un recuerdo infantil que jamás se olvidará. Ella continua con su labor, yo continuo con mi excursión.Esta es una de mis fotos preferidas a día de hoy. Publiqué una versión en blanco y negro para enseñarla a la genta más próxima a través de redes sociales y una versión impresa en color para enseñarla en talleres. Hace unos meses decidí realizar la copia original en un lienzo y guardarla en uno de [mis estuches exclusivos](http://lluisr.blogspot.com/2011/02/estreno-carpeta-para-fotos.html).  
+**Descripción**
+
+-   “[La noia de l’Alka](http://www.flickr.com/photos/lluisr/5823981197)” (#110010/#000001)
+
+Todo el proceso desde la toma de las fotografía hasta el montaje pasando por la edición e impresión han sido realizados por mi personalmente mimando la calidad de todo el proceso.
+
+La primera copia viene con un estuche hecho a medida forrado en tela en su exterior y con un papel ph neutro en su interior. Esta copia de 14,8cm x 22,2 cm está impresa en un papel de tipo lienzo mate e impresa con tintas de alta calidad.

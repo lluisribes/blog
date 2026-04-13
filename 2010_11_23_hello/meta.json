@@ -1,0 +1,19 @@
+{
+  "id": "hello",
+  "title": "hello",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "excerpt": "http://hello.lluisribes.net &nbsp;\n",
+  "categories": [
+    "articulos"
+  ],
+  "tags": [
+    "hello.lluisribes.net",
+    "Lluís Ribes Start web"
+  ],
+  "publishedDate": "2010-11-23T23:00:00",
+  "updatedAt": "2010-11-23T23:00:00",
+  "wordpressId": 253
+}

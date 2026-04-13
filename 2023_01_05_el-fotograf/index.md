@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="gos_la_palma_lluis_ribes_i_portillo.jpg" alt=""><figcaption>Punta de Juan Graje, La Palma, 2022 –&nbsp;<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

@@ -1,0 +1,18 @@
+{
+  "id": "album-fotografico",
+  "title": "Álbum fotográfico",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "excerpt": "Hola, os escribo un artículo de un pequeño proyecto de fotos que realizamos para la comunión de Mireia, que a su vez fue un regalo. El proyecto constaba en realizar las fotografías y hacer un álbum de su comunión. Nuestro objetivo era crear un objeto de recuerdo único para Mireia y la familia. Las fotografías &#8230; \nLlegir més&#8230;\n",
+  "categories": [
+    "fotografia"
+  ],
+  "tags": [
+    "álbum"
+  ],
+  "publishedDate": "2012-11-01T20:07:00",
+  "updatedAt": "2012-11-01T20:07:00",
+  "wordpressId": 129
+}

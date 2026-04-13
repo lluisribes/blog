@@ -1,0 +1,11 @@
+Hace dos semanas leí una entrevista en la revista [Newsweek](http://www.newsweek.com/) y tenía pendiente comentar un par de respuestas que me parecieron interesantes. La entrevista se realizaba a [Christophe Fournier](http://en.wikipedia.org/wiki/Christophe_Fournier), presidente de [Médicos sin Fronteras](http://www.msf.org/) y hacía referencia a las intervenciones militares en las misiones de ayuda humanitaria. Prácticamente toda la entrevista se realizó en el contexto de la tragedia de Haiti.La entrevista entera, muy cortita, la podéis seguir aquí: [On the Ground in Haiti](http://www.newsweek.com/id/232058) ([aquí su traducción](http://translate.google.com/translate?js=y&prev=_t&hl=es&ie=UTF-8&layout=1&eotf=1&u=http%3A%2F%2Fwww.newsweek.com%2Fid%2F232058&sl=en&tl=es))  
+Y a continuación os resumo los dos puntos:  
+1\. Cuando la ayuda humanitaria forma parte de las operaciones militares pasa dos cosas:
+
+-   La ayuda va a parar a aquellos lugares que son estratégicos, y no siempre a los más necesitados
+-   Los miembros de las organizaciones humanitarias se convierten en blancos en las zonas de insurgentes
+
+2\. En respuesta si la intervención militar de los EEUU en Haití buscar reforzar la seguridad, Christophe Fournier responde que llevan 19 años en ese país y nunca lo han necesitado.  
+Como ejemplo concreto de como una operación militar puede interferir en las operaciones humanitarias, comenta que en la isla de Haiti los aviones de Médicos sin Fronteras eran desviados a la República Dominicana y no podían aterrizar directamente en la capital Haitina por decisión de los militares, quienes reservaban el aeropuerto para otros (que Christophe Fournier los llamaba “VIPs”). Esto les impidió llevar cargamento humanitario directo a la tragedia, perdiendo 4 pacientes y retrasando la creación de las clínicas.  
+Christophe Fournier no pone en cuestión las intervenciones de las fuerzas militares pero cuestiona mucho el papel que está adquiriendo estas en la ayuda humanitaria.  
+buena semana,

@@ -1,0 +1,2 @@
+Otro año más. Pero como cada año, especial. El [taller de Cabo de Gata](http://www.talleresencabodegata.com/) 2011 con el maestro Pablo Ortiz Monasterio.  
+[![](cabo-2Bde-2Bgata-2B-2BPalo-2BOrtiz-2BMonasterio-300x222.jpg)](http://www.lluisribes.net/wp-content/uploads/2011/08/cabo-2Bde-2Bgata-2B-2BPalo-2BOrtiz-2BMonasterio.jpg)

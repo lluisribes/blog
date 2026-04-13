@@ -1,0 +1,2 @@
+[![Sentir](5047426301_06802b4e90_m.gif)](http://www.flickr.com/photos/lluisr/5047426301/ "Sentir por lluisribes, no Flickr")“Cada uno somos un desierto”  
+([François Mauriac](http://es.wikipedia.org/wiki/Fran%C3%A7ois_Mauriac))

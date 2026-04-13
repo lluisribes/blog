@@ -1,0 +1,5 @@
+Me he leído los capítulos que hacen referencia a la genética en el libro “Una breve historia de casi todo“, de [Bill Bryson](http://www.billbrysonbooks.com/). Han sido muy emocionantes porque me han refrescado las clases de Sociales y Naturaleza de mi etapa escolar. ¿Sabíais que en el núcleo de cada una de los 10.000 BILLONES de células de tu cuerpo hay 2 METROS de ADN?
+
+[![](images.3.jpg)](http://www.lluisribes.net/wp-content/uploads/2006/03/images.3.jpg)Y me ha recordado otra cosa, que es obvia si aceptamos el juego de la genética, pero en cambio hay gente que no lo acaba de ver… y es que en cualquier ser vivo, cuanto más ricas sean las mezclas entre genes más y mejor evolucionará esa especie. ¡Viva la globalización!
+
+más en [Domingueros del espacio](http://lluisr.blogspot.com/2006/02/domingueros-del-espacio.html)

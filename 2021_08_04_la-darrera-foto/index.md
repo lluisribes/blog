@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="placa_de_la_vil-la-Lluis_Ribes_Portillo-1545x1024.jpg" alt=""><figcaption>Plaça de la vila de Gràcia, 2021 –&nbsp;<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

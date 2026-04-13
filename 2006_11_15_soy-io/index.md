@@ -1,0 +1,7 @@
+[![](prehome2-300x222.gif)](http://www.lluisribes.net/wp-content/uploads/2006/11/prehome2.gif)Comprobado. Son [también tan solo 30 segundos ayudar](http://banner.es.amnesty.org/especial/lapidacion-iran/firma3.php) al desarrollo de zonas necesitadas [haciéndote socio de Intermon Oxfam](https://www.intermonoxfam.org/page.asp?id=482) y aportando una cuota periódica a esta organización.
+
+¿Por qué [Intermon Oxfam](http://www.intermonoxfam.org/)? Hace dos años estuve de voluntario una semana en el [Fòrum de las Culturas](http://www.barcelona2004.org/esp) con esta [ONG](http://es.wikipedia.org/wiki/Organizaci%C3%B3n_no_gubernamental). Estaba en la exposición dando a conocer muchos de los proyectos de IO y pude comprobar el trabajo que realizan. Me gustó los proyectos, muchos de ellos basados en la generación de conocimiento y recursos básicos en las zonas más necesitadas para que puedan por si solos tener las condiciones de vida dignas que todos merecemos. También me gustó [la tienda de Intermón Oxfam](http://www.intermonoxfam.org/tienda/), que ofrece productos que garantiza que en todo el proceso de la creación y distribución del producto se han garantizado los derechos del trabajador, lo que no es incompatible con ofrecerlos a unos precios super interesantes ([mirar la web](http://www.intermonoxfam.org/tienda/)!).
+
+Pues ya sabéis, os animo que os apuntéis o sino, ahora que se acerca navidad, que compréis productos justos en la tienda de IO.
+
+[![](Intermon-300x215.jpg)](http://www.lluisribes.net/wp-content/uploads/2006/11/Intermon.jpg)

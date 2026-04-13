@@ -1,0 +1,16 @@
+{
+  "id": "wow",
+  "title": "Wow",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "excerpt": "No hay mejor mañana que te despierten así. ¡Buena semana!\n",
+  "categories": [
+    "articulos"
+  ],
+  "tags": [],
+  "publishedDate": "2010-03-08T07:05:00",
+  "updatedAt": "2010-03-08T07:05:00",
+  "wordpressId": 318
+}

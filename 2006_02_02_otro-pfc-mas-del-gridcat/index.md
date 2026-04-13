@@ -1,0 +1,7 @@
+Ahora estoy emocionado. Y es que otro compañero, Marc, de nuestro grupo de investigación, el [GridCAT](http://www.i2cat.net/i2cat/servlet/I2CAT.MainServlet?seccio=6_3), ha presentado su proyecto final de carrera con un trabajo que ha realizado en el mismo grupo.
+
+Ya son cinco trabajos en tres años: Xavier Fernandez, Javier Galera, Toni Marcos, Sergio Alvarez y Marc de Palol. Quizá para muchos no les dice nada, pero pertenecer a este grupo y saber que aportas un granito de arena a realizar un objetivo tan importante en la vida de una persona como es este trabajo final de la [carrera](http://www.fib.upc.es/) es intenso. Y es que [GridCAT](http://www.i2cat.net/i2cat/servlet/I2CAT.MainServlet?seccio=6_3) tiene como objetivo innovar en el campo de la tecnología [P2P](http://es.wikipedia.org/wiki/P2P) y [Grid](http://en.wikipedia.org/wiki/Grid_computing), y pese nuestros limitados recursos algo conseguimos al respecto. Pero lo que no hay duda, es que ha trabajado, en especial el director del grupo Ramon Sangüesa, para que alumnos con iniciativa, una vez acabada la carrera, puedan optar a realizar un proyecto final práctico, que está remunerado, en un muy buen ambiente, con total libertad de decisión en su trabajo y en un grupo con gente inteligente que siempre ha estado dispuesta a escuchar, comprender y ayudar.
+
+Y esto vale mucho.
+
+Aprovecho este post para envíar un fuerte recuerdo a todos aquellos que pudieron continuar afrontando nuevos retos profesionales tras trabajar en este grupo.

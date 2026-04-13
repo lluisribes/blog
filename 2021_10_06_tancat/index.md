@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="la_porta_Lluis_Ribes_i_Portillo-1534x1024.jpg" alt=""><figcaption>Poble Nou, 2021 –<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">&nbsp;Lluís Ribes i Portillo (cc)</a></figcaption></figure>

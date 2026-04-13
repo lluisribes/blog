@@ -1,0 +1,1 @@
+Os dejo unos videos de las playas de Rio vistas desde un taxi que he rescatado de mi antigua cámara de fotos. No voy a ganar el premio publisher con este reportaje pero si os pica la curiosidad no dejéis de verlo:

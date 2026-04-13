@@ -1,0 +1,25 @@
+{
+  "id": "bona-diada-2",
+  "title": "Bona diada!",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "excerpt": "BONA DIADA !\n",
+  "categories": [
+    "articulos"
+  ],
+  "tags": [
+    "11 setembre",
+    "catalonia",
+    "cataluña",
+    "catalunya",
+    "diada",
+    "national feast",
+    "senyera",
+    "september"
+  ],
+  "publishedDate": "2009-09-11T08:13:00",
+  "updatedAt": "2009-09-11T08:13:00",
+  "wordpressId": 372
+}

@@ -1,0 +1,2 @@
+[![](DSC_3798-300x199.jpg)](http://www.lluisribes.net/wp-content/uploads/2010/12/DSC_3798.jpg)  
+Nube al mediodía sobre la ciudad de Tromsø – [Lluís Ribes i Portillo (cc)](http://creativecommons.org/licenses/by-nc-nd/2.0/)

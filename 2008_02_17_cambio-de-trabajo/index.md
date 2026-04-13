@@ -1,0 +1,4 @@
+Aprovechando que me he conectado al blog para dejaros [una curiosidad del Bicing](http://lluisr.blogspot.com/2008/02/bicing.html), os comento para aquellos que no lo sabéis aún que me cambié de trabajo. Ya no estoy en el [Citilab de Cornellà](http://www.citilab.eu/). Ahora me encontraréis en Poble Nou, en la empresa [Lavinia Interactiva](http://www.laviniainteractiva.com/) comenzando un nuevo reto.También como siempre me podéis encontrar en [lluisribes.googlepages.com](http://lluisribes.googlepages.com/) , en mi [web de fotos](http://flickr.com/lluisr), en [facebook](http://www.facebook.com/) y ya menos activos [web de videos](http://youtube.com/) y [de música](http://www.last.fm/user/lluisribes).  
+Aquí un recuerdo de mis compañeros del Citilab:
+
+[![Equip Citilab 2008](2230517331_6472dd857b-300x224.gif)](http://www.flickr.com/photos/lluisr/2230517331/ "Equip Citilab 2008 por lluisr, no Flickr")

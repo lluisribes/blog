@@ -1,0 +1,11 @@
+[![La vida en un pèndul](241743540_9c6983350c-300x224.gif)](http://www.flickr.com/photos/lluisr/241743540/ "Photo Sharing")
+
+[Richard Owen](http://es.wikipedia.org/wiki/Richard_Owen) fue un polémico biologo y paleontólogo inglés del siglo XIX. Su carrera acabó manchándose de una acusación de fraude al constatar que había plagiado una obra científica gracias por la cual se le había otorgado la [Medalla Real](http://www.royalsoc.ac.uk/page.asp?id=1749), el máximo honor que podía recibir un científico.
+
+Pero no son sus peripecias con las malas artes las que quiero comentar en este artículo sino todo lo contrario, una de sus iniciativas que parece que realizó y ha sido muy beneficiosa para el conjunto de la humanidad. En 1856 se convertió en jefe de la sección de historia natural del [Museo Británico](http://www.thebritishmuseum.ac.uk/) que derivaría en la creación del [Museo de Historia Natural](http://www.nhm.ac.uk/) de [Londres](http://es.wikipedia.org/wiki/Londres). La iniciativa de la que os hablo está explicada en el libro “Una breve historia de casi todo” de [Bill Bryson](http://www.billbrysonbooks.com/) y os la resumo a continuación:
+
+Mirad, antes que Owen accediera a tal cargo, los museos eran espacios donde solo podían acceder personas privilegiadas y a veces hasta estas mismas tenían dificultades. Por ejemplo, en el Museo Británico, aquella persona que quisiera visitarlo tenía que entregar dos o más solicitudes y muchas veces realizar una entrevista con el objetivo de comprobar que esa persona recogía las condiciones para acceder al museo. Una vez que obtenían el permiso, la visita tampoco era muy intensa y no podían prácticamente contemplar las piezas del museo.
+
+El giro que Owen provocó fue la de permitir que todo el mundo pudiera acceder a su museo, tanto las personas de clases privilegiadas como los trabajadores y animándoles a estos especialmente a visitar el museo tras la jornada laboral. También impulsó las exposiciones públicas. Hasta propuso algo que en aquellos tiempos parecía radical, que era la colocación de etiquetas en las piezas para que el visitante pudiera apreciar lo que veía.
+
+En definitiva, que Owen cambió el concepto de los museos poniendolo a la disposición de todos, compartiendo el conocimiento con el pueblo. Desde mi punto de vista, una gran aportación y una gran iniciativa vital para el progreso.

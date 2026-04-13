@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="londres-may-2022.jpg" alt=""><figcaption>Estrecho Madrid, 2022 –<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">&nbsp;Lluís Ribes i Portillo (cc)</a></figcaption></figure>

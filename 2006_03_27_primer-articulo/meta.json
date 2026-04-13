@@ -1,0 +1,16 @@
+{
+  "id": "primer-articulo",
+  "title": "Primer Artículo",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "excerpt": "Quizá antes de entrar en la universidad nunca pensaría que pudiera participar en un grupo de investigación, y aún menos que publicarían un artículo en una revista internacional del cual soy uno de sus co-autores. Pues esto ha pasado, y sólo me cabe felicitar y dar gracias a todos los que han trabajado en él, &#8230; \nLlegir més&#8230;\n",
+  "categories": [
+    "articulos"
+  ],
+  "tags": [],
+  "publishedDate": "2006-03-27T00:48:00",
+  "updatedAt": "2006-03-27T00:48:00",
+  "wordpressId": 600
+}

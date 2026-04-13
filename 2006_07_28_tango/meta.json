@@ -1,0 +1,16 @@
+{
+  "id": "tango",
+  "title": "Tango !",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "excerpt": "",
+  "categories": [
+    "articulos"
+  ],
+  "tags": [],
+  "publishedDate": "2006-07-28T13:20:00",
+  "updatedAt": "2006-07-28T13:20:00",
+  "wordpressId": 568
+}

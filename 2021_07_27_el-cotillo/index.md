@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="vista-de-loce-atlntic-des-del-cotillo_6518170673_o-2.jpg" alt=""><figcaption>El Cotillo, Fuerteventura – <a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

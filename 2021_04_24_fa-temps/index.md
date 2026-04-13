@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="la_floresta_Lluis_Ribes_i_Portillo-1.jpg" alt=""><figcaption>Centre cívic i sanitari La Floresta, 2021 – <a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

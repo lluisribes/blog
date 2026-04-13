@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="natura_Lluis_Ribes_i_Portillo.jpg" alt=""><figcaption>Sant Pau de Segúries – <a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

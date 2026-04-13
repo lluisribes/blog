@@ -1,0 +1,1 @@
+[![](pilota-2Bvermella-199x300.jpg)](http://www.lluisribes.net/wp-content/uploads/2011/04/pilota-2Bvermella.jpg)(sense titol) – [Lluís Ribes i Portillo (cc)](http://creativecommons.org/licenses/by-nc-nd/2.0/)

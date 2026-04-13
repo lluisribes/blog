@@ -1,0 +1,7 @@
+Esta pequeña pieza es una improvisación de Julián Rodríguez:  
+[  
+Solo de guitarra de un tema a medio hacer](http://odeo.com/audio/2355622/play)
+
+Esta improvisación, me sirve para improvisar, valga la redundancia, un pequeño comentario de como Julián combina y comparte sus inquietudes mediante el uso de diversos servicios de la web 2.0. Por ejemplo, [sus composiciones musicales](http://odeo.com/channel/109022/view) las sube a [Odeo](http://www.odeo.com/), un repositorio de música. [Sus fotografias](http://flickr.com/photos/julianrod/) a [flickr](http://www.flickr.com/), y combina sus piezas de música con sus fotos a través de [Tune Flickr](http://flickr.com/groups/tuneflickr/), un grupo de flickr. No falta [su bitácora](http://julianrodriguez.wordpress.com/) en [WordPress](http://www.wordpress.com/) donde escribe de todo lo que le da la gana, y finalmente comparte la [música que escucha](http://www.last.fm/user/julianrod/) en [last.fm](http://www.last.fm/). ¿No es interesante ver como utiliza toda esta plataforma en internet para plasmar sus ideas?
+
+Por cierto, encontré un [experimento sociológico interesante en su blog](http://julianrodriguez.wordpress.com/2006/06/27/experimento-sociologico/) , por si alguno de mis lectores aficionados a las redes sociales quiere dejarle una opinión al respecto.

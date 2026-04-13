@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="a-un-lloc-del-maresme_7177625813_o.jpg" alt="A un lloc del Maresme"><figcaption>A un lloc del Maresme (2012) – <a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener nofollow">Lluís Ribes i Portillo – (cc)</a></figcaption></figure>

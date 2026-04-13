@@ -1,0 +1,1 @@
+[![](en-2Bel-2Bjardi-246x300.jpg)](http://www.lluisribes.net/wp-content/uploads/2011/11/en-2Bel-2Bjardi.jpg)

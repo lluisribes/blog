@@ -1,0 +1,19 @@
+{
+  "id": "la_ville",
+  "title": "La ville",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "excerpt": "",
+  "categories": [
+    "fotos"
+  ],
+  "tags": [
+    "Centre Pompidou",
+    "paris"
+  ],
+  "publishedDate": "2024-08-09T11:56:13",
+  "updatedAt": "2024-08-09T12:05:06",
+  "wordpressId": 5074
+}

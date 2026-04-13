@@ -1,0 +1,1 @@
+[![San Francisco (Panoramic)](1245613044_51322fbbe0-300x224.gif)](http://www.flickr.com/photos/lluisr/1245613044/ "Compartilhamento de fotos")Ya estamos de vuelta. Iré pensando en como os explico la experiencia de San Francisco. De momento me voy al curro, tengo ganas de saber que novedades hay… 🙂

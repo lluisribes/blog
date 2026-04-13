@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="azul_amarillo_LLuis_Ribes_i_Portillo.jpg" alt=""><figcaption>Fòrum (2019) – <a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener nofollow">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

@@ -1,0 +1,3 @@
+El último día del viaje consiste en volver por la autopista del sur a Newcastle donde dejo el coche de alquiler que me ha llevado a un viaje por toda Escocia.
+
+El alquiler del coche, en [Thrifty Newcastle Upon Tyne](http://www.thrifty.co.uk/car-hire/newcastle-upon-tyne.htm), está unos cuantos kilómetros del aeropuerto pero un trabajador me acompaña a este como cortesía de la empresa. Todo un lujo, genial.

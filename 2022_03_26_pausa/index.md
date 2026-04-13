@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="PXL_20220324_1833072332_113248-1820x1024.jpg" alt=""><figcaption>Zurriola Hondartza, 2022 –<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">&nbsp;Lluís Ribes i Portillo (cc)</a></figcaption></figure>

@@ -1,0 +1,3 @@
+Bueno, aprovecho un momento que tengo libre para informaros que este puente un grupo de fotógrafos (unos más amateur que otros) nos vamos a afotar [Ferreries y los alrededores](http://www.ajferreries.org/index.php), en la isla de Menorca.El Ayuntamiento de Ferreries ha organizado un encuentro de fotógrafos, invitándonos para crear un fondo fotográfico del pueblo. Conociendo quienes vamos, sin duda van a lograr tener una gran cantidad de fotos de gran calidad, aunque habrá que trabajar duro.  
+Os iré contando, a ver si me animo a hacer un día a día en el blog.  
+Os dejo, es tarde y mañana continuamos en Citilab – Cornellà… de mica en mica s’ompla la pica

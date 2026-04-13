@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="palafrugell-lluis-ribes-portillo-683x1024.jpg" alt=""><figcaption>Resclosa de Colomers (2017) –&nbsp;Lluís Ribes i Portillo – (cc)</figcaption></figure>

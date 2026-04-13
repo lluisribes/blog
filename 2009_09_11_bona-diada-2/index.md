@@ -1,0 +1,1 @@
+[![Bona diada!](3908505285_666372617d_m.gif)](http://www.flickr.com/photos/lluisr/3908505285/ "Bona diada! por lluisr, no Flickr")BONA DIADA !

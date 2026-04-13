@@ -1,0 +1,1 @@
+[![](1-199x300.jpg)](http://www.lluisribes.net/wp-content/uploads/2010/05/1.jpg)Thanks [Julie](http://www.juliejohnsonphotography.com/index.html) for the photo!…and thank you very much for the BOOK!!

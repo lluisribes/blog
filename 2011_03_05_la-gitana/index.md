@@ -1,0 +1,2 @@
+[![](Exit-2Bestuche-3-199x300.jpg)](http://www.lluisribes.net/wp-content/uploads/2011/03/Exit-2Bestuche-3.jpg)[“La Gitana”](http://www.flickr.com/photos/encartist/5435813192/) de [Encarna Boada](http://enkartist.blogspot.com/)  
+[The Ocean And Me – Sophie Zelmani](http://www.goear.com/listen/440ee8c/the-ocean-and-me-sophie-zelmani)… y su colección [“Nines d’aigua”](http://www.flickr.com/photos/encartist/sets/72157624866342081/show/)

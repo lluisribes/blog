@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="natura_Lluis_Ribes_i_Portillo-2.jpg" alt=""><figcaption>Muntanyes de Milany 2021- <a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener nofollow">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

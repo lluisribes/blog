@@ -1,0 +1,1 @@
+Otro día aprovechando la biblioteca. Parece ser, que mi compañía de acceso a Internet ha tenido que explicar cual es el problema real de mi caso y la solución a los de [Telefónica](http://www.telefonica.es/).

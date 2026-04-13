@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="I_vam_tancar_el_bosc_Lluis_Ribes_Portillo.jpg" alt=""><figcaption>Collserola, 2021 –<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">&nbsp;Lluís Ribes i Portillo (cc)</a></figcaption></figure>

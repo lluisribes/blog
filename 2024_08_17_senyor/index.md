@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="andorra_2024_LLuis_Ribes_i_Portillo-4-1-1365x1024.jpg" alt=""><figcaption>Estany de Cabana Sorda, Andorra (2024) –&nbsp;<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

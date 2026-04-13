@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="model_lluis_ribes_portillo-5564.jpg" alt=""><figcaption>Galería de la Academia de Florencia, 2021 – <a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

@@ -1,0 +1,10 @@
+Posteo este artículo para daros a conocer un par de proyectos emprendedores en España que he tenido el privilegio de conocer. Pese que el panorama para la innovación y emprender empresas está mal, creo importante resaltar proyectos como estos, de gente joven que sin tener asegurado su éxito dedican su tiempo y dinero para tirar adelante un proyecto.
+
+[![](edge-security.jpg)](http://www.lluisribes.net/wp-content/uploads/2006/02/edge-security.jpg)El primero está relacionado con la seguridad informática. Está formado por tres apasionados de la seguridad y se llama [edge-security](http://www.edge-security.com/). Están desarrollando un software de código libre de testeo de la seguridad en bases de datos: el [Metacoretex-NG](http://metacoretex-ng.sourceforge.net/index.php). Ya tienen una versión funcional y se puede bajar de la web. Además del desarrollo de este software, asesoran en la seguridad de instituciones y cada dos o tres veces al año organizan unas conferencias de seguridad para compartir sus experiencias. La próxima es este viernes, en Barcelona:  
+[FIST September 2006 – Barcelona](http://www.fistconference.org/barna.php)
+
+Para contactar con ellos, enviar un mail a cualquiera de ellos: [Edge-Security Contacts](http://www.edge-security.com/contact.php)
+
+[![](logo_print_en-300x31.gif)](http://www.lluisribes.net/wp-content/uploads/2006/02/logo_print_en.gif)El segundo proyecto está relacionado con el alquiler de pisos para el turismo en Barcelona usando un portal web. Es un espacio en la red que permite por un lado encontrar pisos para unos días, y por el otro lado ser un espacio para anunciar tu piso si no lo vas a tener ocupado y quieres sacarle rentabilidad. El portal del proyecto es [www.apartmentum.com](http://www.apartmentum.com/), y también está en activo y en pleno funcionamiento.
+
+Para contactar con apartmentu.com para cualquier cosa, enviar el formulario siguiente: [Apartamentum Contact](http://barcelona.apartmentum.com/apartamentos_contacta.htm)

@@ -1,0 +1,1 @@
+Río de Janeiro 2006[![](RioPeque-300x160.jpg)](http://www.lluisribes.net/wp-content/uploads/2006/03/RioPeque.jpg)(en elaboración)

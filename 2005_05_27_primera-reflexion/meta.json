@@ -1,0 +1,16 @@
+{
+  "id": "primera-reflexion",
+  "title": "Primera reflexion",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "excerpt": "Esta es mi primera pero no última reflexión. Lluís R.\n",
+  "categories": [
+    "articulos"
+  ],
+  "tags": [],
+  "publishedDate": "2005-05-27T15:53:00",
+  "updatedAt": "2005-05-27T15:53:00",
+  "wordpressId": 693
+}

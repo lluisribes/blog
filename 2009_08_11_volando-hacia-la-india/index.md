@@ -1,0 +1,1 @@
+[![3811842459_0e409b9c69_z](3811842459_0e409b9c69_z.jpg)](http://www.lluisribes.net/wp-content/uploads/2009/08/3811842459_0e409b9c69_z.jpg)Mañana estoy volando hacia la India. Una micro información de la escapada en [vacancesindia.blogspot.com](http://vacancesindia.blogspot.com/) .Prometo buenas fotos.

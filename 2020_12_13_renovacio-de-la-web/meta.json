@@ -1,0 +1,23 @@
+{
+  "id": "renovacio-de-la-web",
+  "title": "Renovació de la web",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "titleImage": "image-2.png",
+  "excerpt": "Aquest cap de setmana s&#8217;ha fet la renovació de la web després del darrer canvi el 2015. Molts canvis interns i tecnològics i també d&#8217;estructuració. Primer us comentaré els canvis d&#8217;estructuració i després els que fan referència a tecnologia del web. Estructuració 3 seccions Torna al format de bloc, és a dir, la pàgina inicial &#8230; \nLlegir més&#8230;\n",
+  "categories": [
+    "general"
+  ],
+  "tags": [
+    "docker",
+    "https",
+    "nova",
+    "nuevo",
+    "web"
+  ],
+  "publishedDate": "2020-12-13T15:09:00",
+  "updatedAt": "2020-12-16T23:49:44",
+  "wordpressId": 4475
+}

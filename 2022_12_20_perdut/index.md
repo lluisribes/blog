@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="Boira_pi_la_palma_Lluis_Ribes_i_Portillo.jpg" alt=""><figcaption>Mirador Astronòmic del Llano del Jable, La Palma, 2022 –&nbsp;<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

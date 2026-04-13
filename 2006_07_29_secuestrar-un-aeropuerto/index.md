@@ -1,0 +1,9 @@
+[![Aeroport Prat 2](192033980_a83822c410-300x224.gif)](http://www.flickr.com/photos/lluisr/192033980/ "Photo Sharing")
+
+[![](somerights20.0.gif)](http://www.lluisribes.net/wp-content/uploads/2006/07/somerights20.0.gif)Ayer viernes, 28 de Julio, 200 de los trabajadores del “handling” (operaciones de tierra) del [Aeropuerto Internacional de Barcelona](http://www.aena.es/csee/Satellite?pagename=Estandar%2FPage%2FAeropuerto&c=Page&amp;MO=0&SMO=-1&amp;SiteName=BCN%26cid%3D1045569607459) [dejaron sus puestos de trabajo](http://news.yahoo.com/s/afp/20060728/bs_afp/spaintransportairport_060728203458) y [crearon barricadas con los autobuses y otros vehículos en las mismas pistas de aterrizaje](http://english.people.com.cn/200607/29/eng20060729_287981.html), durante toda la jornada (estacionar en una pista de aterrizaje mola más que hacerlo sobre la acera, eh?)
+
+Sin avisar previamente, sin informar, en un día de máximo tránsito aéreo y evidentemente sin ofrecer ningún servicio mínimo. Nada que ver con el derecho de huelga, más bien algo así como un asalto al aeropuerto. Resultado: 500 vuelos cancelados y 200.000 pasajeros afectados. ¿Cuál fue el motivo?
+
+El motivo es [la pérdida de la concesión de la licencia de la empresa de “handling” (iberia) para operar en este aeropuerto](http://www.forbes.com/business/feeds/afx/2006/07/26/afx2904595.html). En consecuencia, los trabajadores apresados por el miedo a la posibilidad de perder sus puestos de trabajo y para forzar una negociación hicieron tan singular protesta.
+
+Que cada uno juzgue, pero a mi me parece que ayer un colectivo realizó un delito.

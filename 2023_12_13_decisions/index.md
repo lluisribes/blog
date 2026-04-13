@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="arbre-vermel-llaes-lluis-ribes-i-portillo.jpg" alt=""><figcaption>Llaés (2023) – &nbsp;<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

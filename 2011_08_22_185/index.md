@@ -1,0 +1,1 @@
+[![](Gos-1-300x199.jpg)](http://www.lluisribes.net/wp-content/uploads/2011/08/Gos-1.jpg)(sense títol) – [Lluís Ribes i Portillo (cc)](http://creativecommons.org/licenses/by-nc-nd/2.0/)

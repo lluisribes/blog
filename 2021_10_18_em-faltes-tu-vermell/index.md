@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="hi_faltes_tu_vermell.jpg" alt=""><figcaption>Garraf, 2021 –<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">&nbsp;Lluís Ribes i Portillo (cc)</a></figcaption></figure>

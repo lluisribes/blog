@@ -1,0 +1,1 @@
+[Isabel](http://blocs.lamalla.cat/bloc/isabelfernandez) en el café nos apela a este espléndido momento de la no menos espléndida película “Zorba el griego”

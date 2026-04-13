@@ -1,0 +1,3 @@
+Este Lunes 12 de Abril aparece la nueva versión de Photoshop CS5. Una de las nuevas funcionalidades es el “Content Aware Fill”. ¿En qué consiste? Es la herramienta que te permite literalmente extraer de tu foto un sujeto o elemento que no quieres que aparezca. Si no me entendéis, mirar los siguiente videos:
+
+Me gusta un comentario que he leído en el youtube: “dentro de 1000 años, cuando Photoshop esté corriendo sobre un ordenador con la potencia del universo entero, alguien seleccionará todo y hará un “content aware fill”.” (…)

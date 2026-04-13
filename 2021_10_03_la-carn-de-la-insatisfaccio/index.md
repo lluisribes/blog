@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="La_carn_de_la_insatisfaccio_Lluis_Ribes_Portillo-1534x1024.jpg" alt=""><figcaption>Barcelona, 2021 –&nbsp;<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

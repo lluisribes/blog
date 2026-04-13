@@ -1,0 +1,18 @@
+{
+  "id": "lunes",
+  "title": "Lunes",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "excerpt": "",
+  "categories": [
+    "articulos"
+  ],
+  "tags": [
+    "escocia"
+  ],
+  "publishedDate": "2010-11-21T22:56:00",
+  "updatedAt": "2010-11-21T22:56:00",
+  "wordpressId": 254
+}

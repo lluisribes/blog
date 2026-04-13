@@ -1,0 +1,1 @@
+Un buen jefe brilla a través de su gente, no cuando esconde el brillo de ellos y deja brillar solo el suyo propio.

@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="museu_art_contemporani_lisboa_lluis_ribes_i_portillo.jpg" alt=""><figcaption>Museo Berardo de Lisboa (2023) – &nbsp;<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

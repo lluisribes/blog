@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="gos-zarauz-Lluis-Ribes-i-Portillo.jpg" alt=""><figcaption>Zarauz, 2022 –<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">&nbsp;Lluís Ribes i Portillo (cc)</a></figcaption></figure>

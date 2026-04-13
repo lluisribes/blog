@@ -1,0 +1,1 @@
+[![](Belchite-2B2011-12-300x199.jpg)](http://www.lluisribes.net/wp-content/uploads/2011/04/Belchite-2B2011-12.jpg)Convento de San Agustín en Belchite – [Lluís Ribes i Portillo (cc)](http://creativecommons.org/licenses/by-nc-nd/2.0/)

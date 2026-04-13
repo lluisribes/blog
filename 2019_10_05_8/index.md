@@ -1,0 +1,3 @@
+[![forum_lluis_ribes_i_portillo](forum_lluis_ribes_i_portillo.jpg)](http://www.lluisribes.net/wp-content/uploads/2019/10/forum_lluis_ribes_i_portillo.jpg) [![forum_lluis_ribes_i_portillo-3](forum_lluis_ribes_i_portillo-3.jpg)](http://www.lluisribes.net/wp-content/uploads/2019/10/forum_lluis_ribes_i_portillo-3.jpg) [![forum_lluis_ribes_i_portillo-4](forum_lluis_ribes_i_portillo-4.jpg)](http://www.lluisribes.net/wp-content/uploads/2019/10/forum_lluis_ribes_i_portillo-4.jpg)[![forum_lluis_ribes_i_portillo-2](forum_lluis_ribes_i_portillo-2.jpg)](http://www.lluisribes.net/wp-content/uploads/2019/10/forum_lluis_ribes_i_portillo-2.jpg)  
+   
+8 – Lluís Ribes i Portillo (cc)

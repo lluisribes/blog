@@ -1,0 +1,19 @@
+{
+  "id": "hans-roslings-en-accion",
+  "title": "Hans Roslings en acción",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "excerpt": "Dicen que es la mejor presentación que se ha hecho sobre estadística. Un interesante repaso a la realidad global de las últimas décadas. Si queréis analizar estas estadísticas y muchas otras, podéis hacerlo vosotros mismo en la web de Hans Roslings en http://graphs.gapminder.org/\n",
+  "categories": [
+    "articulos"
+  ],
+  "tags": [
+    "gapminder",
+    "Hans Roslings"
+  ],
+  "publishedDate": "2009-12-22T22:28:00",
+  "updatedAt": "2009-12-22T22:28:00",
+  "wordpressId": 337
+}

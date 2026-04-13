@@ -1,0 +1,3 @@
+Sencillamente me encanta la idea de tener un marcador electrónico en el cinturón. Me parece algo cutre pero sencillamente genial, me imagino en un futuro no muy lejano donde será normal llevarlo. ¿Qué se pondrá la gente como frase? ¿Su nick de msn? ¿Su [cita preferida](http://es.wikiquote.org/wiki/Portada)?
+
+¿Os gusta?, ¿queréis uno para pasar un rato divertido? ya se puede comprar en [Scrolling Buckle](http://www.scrollingbuckle.com/) a 30 $.

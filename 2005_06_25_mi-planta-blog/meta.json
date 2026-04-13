@@ -1,0 +1,16 @@
+{
+  "id": "mi-planta-blog",
+  "title": "Mi planta Blog",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "excerpt": "Mirando el blog de un amigo, me ha llamado la atención la siguiente web:http://www.organichtml.com/ Esta te crea una representación biológica de tu página web a partir de su contenido. Os dejo la primera que he realizado de mi blog. En Agosto volveré a crear otra, haber si ha crecido 🙂 (gracias Sergio)\n",
+  "categories": [
+    "articulos"
+  ],
+  "tags": [],
+  "publishedDate": "2005-06-25T14:49:00",
+  "updatedAt": "2005-06-25T14:49:00",
+  "wordpressId": 690
+}

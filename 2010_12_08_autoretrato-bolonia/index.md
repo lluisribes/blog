@@ -1,0 +1,1 @@
+[![](Autoretrato-1-300x199.jpg)](http://www.lluisribes.net/wp-content/uploads/2010/12/Autoretrato-1.jpg)

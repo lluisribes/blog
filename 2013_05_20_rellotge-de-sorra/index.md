@@ -1,0 +1,1 @@
+*“Rellotge de sorra”* – [Lluís Ribes i Portillo (cc)](http://creativecommons.org/licenses/by-nc-nd/2.0/)

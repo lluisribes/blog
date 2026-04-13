@@ -1,0 +1,4 @@
+<figure id="attachment_2827" aria-describedby="caption-attachment-2827" style="width: 1190px"><a href="http://www.lluisribes.net/wp-content/uploads/2015/02/Caminar_pel_cami_Lluis_Ribes_Portillo.jpg"><img loading="lazy" decoding="async" src="Caminar_pel_cami_Lluis_Ribes_Portillo.jpg" alt="Caminar_pel_cami_Lluis_Ribes_Portillo"></a><figcaption id="caption-attachment-2827">“Caminar pel camí de la vi(d)a” – <a href="http://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noopener noreferrer">Lluís Ribes i Portillo (cc)</a></figcaption></figure>
+
+Caminar pel camí de la vi(d)a.
+------------------------------

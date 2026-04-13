@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="Orsay_rellotge_2024_LLuis_Ribes_i_Portillo.jpg" alt=""><figcaption>Museu d’Orsay (2024) –&nbsp;<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

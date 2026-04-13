@@ -1,0 +1,23 @@
+{
+  "id": "la-darrera-foto",
+  "title": "La darrera foto",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "excerpt": "",
+  "categories": [
+    "fotos"
+  ],
+  "tags": [
+    "arbre",
+    "barcelona",
+    "Gràcia",
+    "plaça",
+    "rellotge",
+    "Vila"
+  ],
+  "publishedDate": "2021-08-04T21:51:15",
+  "updatedAt": "2021-08-04T21:51:21",
+  "wordpressId": 4613
+}

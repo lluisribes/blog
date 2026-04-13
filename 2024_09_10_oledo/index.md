@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="B0000183-Editar-1367x1024.jpg" alt=""><figcaption>Plaça de San Juan de los Reyes, Toledo (2024) –&nbsp;<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

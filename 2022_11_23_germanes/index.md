@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="roig_drassanes_lluis_ribes_portillo.jpg" alt=""><figcaption>Drassanes de Barcelona, 2021 –&nbsp;<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="una_tarda_Lluis_Ribes_i_Portillo.jpg" alt=""><figcaption>Barcelona, 2022 –<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">&nbsp;Lluís Ribes i Portillo (cc)</a></figcaption></figure>

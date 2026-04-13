@@ -1,0 +1,1 @@
+[![](verd-199x300.jpg)](http://www.lluisribes.net/wp-content/uploads/2007/04/verd.jpg)El Blog está en constante movimiento. Hoy ha evolucionado un poco, espero que os guste estas y las próximas modificaciones.

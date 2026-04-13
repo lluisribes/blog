@@ -1,0 +1,4 @@
+Dos semanas atrás visité una exposición en [Palau Robert](http://www20.gencat.cat/portal/site/PalauRobert?newLang=ca_ES) sobre el fallecido periodista Miguel Gil. Esta exposición acabó, pero de alguna manera dejaré una pequeña memoria en este post. Leeros la entrada de la wiki para situaros quién era:[Miguel Gil Moreno – Wikipedia](http://es.wikipedia.org/wiki/Miguel_Gil_Moreno)  
+Os voy a dejar dos videos. El primero, creado por la organización de la exposición. Es como un mini resumen con testimoneos que le conocieron e imágenes de él en acción. El segundo video, un videoreportage de la guerra de Kosovo realizado con material grabado por Miguel Gil.
+
+(Link a la Fundación Miguel Gil: [http://www.fundacionmiguelgilmoreno.com](http://www.fundacionmiguelgilmoreno.com/))

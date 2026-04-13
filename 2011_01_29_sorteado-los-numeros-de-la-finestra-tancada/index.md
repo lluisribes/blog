@@ -1,0 +1,3 @@
+Ya se han sorteado los números para el [concurso del tríptico “La finestra tancada”](http://lluisr.blogspot.com/2011/01/regalo-la-finestra-tancada.html). Muchas gracias a todos aquellos que os habéis apuntado!!. Ahora a esperar al jueves 3. Suerte! 🙂
+
+[![](Esperant-2Ba-2Bl-2527estaci-25C3-25B3-2Bde-2BValldoreix-199x300.jpg)](http://www.lluisribes.net/wp-content/uploads/2011/01/Esperant-2Ba-2Bl-2527estaci-25C3-25B3-2Bde-2BValldoreix.jpg)Esperant a l’estació de Valldoreix – [Lluís Ribes i Portillo (cc)](http://creativecommons.org/licenses/by-nc-nd/2.0/)

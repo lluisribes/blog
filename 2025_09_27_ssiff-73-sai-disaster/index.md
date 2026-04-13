@@ -1,0 +1,9 @@
+<figure><img loading="lazy" decoding="async" src="image-8-207x300.png" alt=""></figure>
+
+Ay, esta película… salí emocionado, pero después de dejarla reposar unos días quizá me contenga y la dejo en ⭐️⭐️⭐️☆☆. *SAI: Disaster* es la adaptación al cine de la serie japonesa *SAI* y se presentó en la Sección Oficial del festival.
+
+Tengo que reconocer mi debilidad por Japón y su cine: desde clásicos como los de [Hiroshi Teshigahara (*La mujer de la arena*)](https://www.lluisribes.net/2023/10/05/la-dona-de-les-dunes-%e7%a0%82%e3%81%ae%e5%a5%b3/), hasta *[Tampopo](https://www.filmaffinity.com/es/film217756.html)*, [*Akira*](https://www.filmaffinity.com/es/film144113.html) o la serie *[Midnight Diner: Tokyo Stories](https://www.filmaffinity.com/es/film858533.html)*. Por eso, esta película de noir japonés me hipnotiza. Me fascina cómo la dirigen Yutaro Seki y Kentaro Hirase: las cartelas rojas que introducen cada historia, la fotografía, esa música asonante que irrumpe en los momentos de máxima tensión… Todo suma.
+
+Tanto, que incluso le perdono que el gran puzzle de los asesinatos no parece llegar: y es que a la inspectora le cuesta descubrir la identidad del personaje misterioso que aparece en todas las tramas aparantemente inconexas, apenas señalado por unos mechones de pelo cortado. Como espectador, esa información la recibe rápido y desearía entrar en la película y explicárselo a la inspectora para ayudarla a atrapar al villano. Pero el personaje parece ser algo más que un simple mortal.
+
+Llegados a este punto, si lo consideras una chorrada, la película te parecerá larga y soporífera, y con razón dirás que los directores no saben cómo cerrar las tramas y por tanto película para olvidar. Pero si, por el contrario, lo que cuento te hace imaginar quien tan escurridizo solo puede estar detrás de todas esas desgracias… entonces verla merece la pena.

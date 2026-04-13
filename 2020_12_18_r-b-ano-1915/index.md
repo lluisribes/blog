@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="rb-anno-1915-Lluis-Ribes-i-Portillo.jpg" alt="R B Año 1915"><figcaption>R B Año 1915 – <a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" rel="nofollow">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

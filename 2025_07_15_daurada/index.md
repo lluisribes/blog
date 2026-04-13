@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="CostaDaurada-Lluis-Ribes-i-Portillo-1010638-1365x1024.jpg" alt=""><figcaption>Costa Daurada (2025) –&nbsp;<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="Lungarno_degli_Acciaiuoli_Lluis_Ribes_Portillo.jpg" alt=""><figcaption>Lungarno degli Acciaiuoli, 2021 –<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">&nbsp;Lluís Ribes i Portillo (cc)</a></figcaption></figure>

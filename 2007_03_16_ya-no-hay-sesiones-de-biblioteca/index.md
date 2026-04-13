@@ -1,0 +1,3 @@
+Dos semanas sin internet en casa… pero al fin ya está solucionado. Desgraciadamente este fin de semana no podré disfrutar de la linea, estaré fuera pero volveremos con fuerza…
+
+saludos!

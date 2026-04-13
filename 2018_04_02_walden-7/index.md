@@ -1,0 +1,1 @@
+[![Walden 7](Walden7.jpg)](http://www.lluisribes.net/wp-content/uploads/2018/04/Walden7.jpg)

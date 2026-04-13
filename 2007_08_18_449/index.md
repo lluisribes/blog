@@ -1,0 +1,2 @@
+[![Bahía de San Francisco](1148955531_60427f5d66_z.jpg)](http://www.lluisribes.net/wp-content/uploads/2007/08/1148955531_60427f5d66_z.jpg)  
+[continuo en San Francisco…](http://flickr.com/photos/lluisr/)

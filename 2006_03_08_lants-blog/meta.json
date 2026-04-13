@@ -1,0 +1,16 @@
+{
+  "id": "lants-blog",
+  "title": "Lant's Blog",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "excerpt": "Un nou bloger, Benvingut Marc! lant&#8217;s Blog I am&#8230; A 23 year&#8217;s old computer science student. I have no time for&#8230; Making nice looking web pages. Interested in&#8230; Grid Computing Linux / NetBSD Noisy music Perl Contact me&#8230; Nick: Lant e-mail: lant at vicerveza dot homeunix dot net jabber: lant at jabber dot org msn: &#8230; \nLlegir més&#8230;\n",
+  "categories": [
+    "articulos"
+  ],
+  "tags": [],
+  "publishedDate": "2006-03-08T01:50:00",
+  "updatedAt": "2006-03-08T01:50:00",
+  "wordpressId": 619
+}

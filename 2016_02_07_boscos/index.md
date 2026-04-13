@@ -1,0 +1,1 @@
+<figure id="attachment_3105" aria-describedby="caption-attachment-3105" style="width: 1190px"><a href="http://www.lluisribes.net/wp-content/uploads/2016/02/Boscos.jpg"><img loading="lazy" decoding="async" src="Boscos.jpg" alt="Boscos"></a><figcaption id="caption-attachment-3105">boscos – Lluís Ribes i Portillo (cc)</figcaption></figure>

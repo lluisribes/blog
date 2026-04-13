@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="Ribesaltes_entrada_2024_LLuis_Ribes_i_Portillo-1365x1024.jpg" alt=""><figcaption>Mémorial du camp de Rivesaltes (2024) –&nbsp;<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="st-pancras-Lluis-Ribes-i-Portillo.jpg" alt=""><figcaption>St. Pancras Station, 2022 –<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">&nbsp;Lluís Ribes i Portillo (cc)</a></figcaption></figure>

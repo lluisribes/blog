@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="museu-wurth-lluis-ribes-portillo-1.jpg" alt="Museu Würth Logronyo"><figcaption>Museu Würth (2018) – <a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener nofollow">Lluís Ribes i Portillo</a><a href="https://creativecommons.org/licenses/by-nc-nd/3.0/"> (cc)</a></figcaption></figure>

@@ -1,0 +1,1 @@
+[![albufera_lluis_ribes_i_portillo](albufera_lluis_ribes_i_portillo.jpg)](http://www.lluisribes.net/wp-content/uploads/2020/07/albufera_lluis_ribes_i_portillo.jpg)

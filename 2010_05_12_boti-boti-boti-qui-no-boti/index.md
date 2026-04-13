@@ -1,0 +1,3 @@
+[![](Bota-C-177x300.jpg)](http://www.lluisribes.net/wp-content/uploads/2010/05/Bota-C.jpg)
+
+[http://www.google.es/search?q=reforma+diagonal&hl=es&safe=off&client=firefox-a&hs=qWL&rls=org.mozilla:es-ES:official&prmd=n&source=univ&tbs=nws:1&tbo=u&ei=-TLrS4XOMILw0gTm3LSEAw&sa=X&oi=news\_group&ct=title&resnum=1&ved=0CCcQsQQwAA](http://www.google.es/search?q=reforma+diagonal&hl=es&safe=off&client=firefox-a&hs=qWL&rls=org.mozilla:es-ES:official&prmd=n&source=univ&tbs=nws:1&tbo=u&ei=-TLrS4XOMILw0gTm3LSEAw&sa=X&oi=news_group&ct=title&resnum=1&ved=0CCcQsQQwAA)

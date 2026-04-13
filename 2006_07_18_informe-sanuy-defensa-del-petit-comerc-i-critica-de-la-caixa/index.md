@@ -1,0 +1,27 @@
+Hola,
+
+Acabo de leer un libro que os recomiendo a todas aquellas personas interesadas en conocer el funcionamiento político y económico de Cataluña, aunque se puede extrapolar a otros escenarios donde el capitalismo se está instaurando sin control alguno. Se llama “Informe Sanuy, Defensa del petit comerç i crítica de ‘la Caixa’ “ de Francesc Sanuy Gistau y Edicions La Campana.[![](sanuy.jpg)](http://www.lluisribes.net/wp-content/uploads/2006/07/sanuy.jpg)
+
+El autor, abogado y ex Conseller de Comerç, Consum i Turisme, a través del análisis de dos casos como son la lucha entre el pequeño comercio y los grandes comercios y el funcionamiento de la caja de ahorros “la Caixa” expone desde un punto de vista muy próximo y con gran cantidad de ejemplos y hechos, como el poder político, y por tanto el estado, está influenciado por los cargos ejecutivos de las grandes empresas que ante todo buscan su beneficio particular al del beneficio de la sociedad.
+
+El libro es muy fácil de leer aunque se me ha hecho un poco largo las últimas 60 páginas pero es muy interesante gracias a la cantidad de ejemplos y datos que proporciona al lector. Datos muy recientes dado que la primera edición del libro salió en noviembre de 2005.
+
+Tras leerlo os resumo muy brevemente mis conclusiones:
+
+En cuanto a los grandes comercios, tras leer el libro resumiría que estos están realizando una estrategia de eliminar por completo el pequeño comercio aprovechando su influencia en la clase política. El resultado si no se pone remedio, será un comercio centralizado y muy poco competitivo, todo lo contrario para los nuevos retos de una sociedad del siglo XXI.
+
+En cuanto a “la Caixa”, primero os invito a leer el siguiente texto extraído del libro:
+
+La vida normal de un ciudadano catalán por Francesc Sanuy:
+
+“Duermes en tu piso [Inmobiliaria Colonial](http://www.inmocolonial.com/home/index.php) (la Caixa). Te levantas por la mañana y enciendes la luz de [Fecsa-Endesa](http://www.endesa.es/Portal/portada?url=/Portal/es/default.htm&idioma=es&amp;) (la Caixa). Te duchas con agua de [Agbar](http://www.agbar.es/esp/home.asp) (la Caixa), que se calienta con el mismo gas de [Gas Natural](http://www.gasnatural.com/) (la Caixa) con el que has hecho el primer café. Te tomas un donut [Panrico](http://www.panrico.com/) (la Caixa), bajas al párking [Saba](http://www.saba.es/sabagrup.html) [](http://www.saba.es/sabagrup.html)(la Caixa), vas a poner la gasolina [Repsol](http://www.repsolypf.com/) (la Caixa). Te vas a trabajar por el túnel o la autopista [Abertis-Acesa](http://www.autopistas.com/), [Aumar](http://www.aumar.es/), [Aucat](http://www.aucat.es/cat/home/), [Iberpistas](http://www.iberpistas.es/), Avasa, [Túnels del Cadí](http://www.tuneldelcadi.com/) o del Garraf,etc., y pagas los correspondientes peajes (la Caixa). Haces llamadas desde el móvil o del fijo del trabajo con [Telefónica](http://www.telefonica.es/) (la Caixa). Vas a pasar la ITV (Inspección Técnica de Vehículos) obligatoria y privatizada Agbar-Applus (la Caixa). Encargas unas instalaciones eléctricas a [Emte](http://www.grupemte.com/) o a un proyecto de jardinería a Hidroplant (Agbar-la Caixa). – creo que Hidroplant ya no es de la Caixa – Vas a hacer la compra al súper [Caprabo](http://www.caprabo.es/) (la Caixa). Vas a comprar un libro y escojes uno de [Edicions 62](http://www.edicions62.com/) (la Caixa)”
+
+y yo le añado y en referencia a una nota del mismo libro que dentro de poco [cuando agarremos un avión lo haremos bajo el control de… la Caixa](http://www.cincodias.com/articulo/empresas/Abertis/Aena/presentan/opa/inglesa/TBI/779/millones/cdscdi/20041125cdscdiemp_1/Tes/).
+
+De esta forma, respecto “la Caixa” cabe preguntarse si es recomendable dejar las principales infraestructuras de un país a una misma organización, que además y según se puede comprobar en el libro no es un gran ejemplo de gestora económica.
+
+Y para finalizar en las últimas páginas del libro, el autor nos expone una interesante reflexión de [Ian Davis](http://www.mckinsey.com/ideas/wef2004/biographies/ian.asp). Esta reflexión consiste en desechar la actitud de las empresas de guiarse solo por la máxima del “negocio es el negocio” porque no es verdad que la creación de valor para un accionista sea el único objetivo de una empresa. Su conclusión es que las empresas deben tener entre sus objetivos el beneficio a la sociedad con actuaciones bien definidas y ejecutadas y ofrecer a la sociedad los bienes y servicios tal como ella los quiere recibir. Me parece muy acertado y me hace pensar que si en la última década, la figura de una persona en el consejo de administración de una empresa que se encargue de gestionar los sistemas de información ha sido clave para el éxito de la empresa, en los próximos años veremos como aflora una nueva figura, capaz de canalizar los objetivos de la empresa con los de la sociedad. Sin duda, estas empresas tendrán un valor añadido difícil de superar.
+
+Recordad, si queréis profundizar mucho más en este tema y leer una crítica bien estructurada no dudéis en leer el libro, que para estas fechas va muy bien.  
+  
+nota: se me había olvidado, el link de la Caixa es: [www.lacaixa.es](http://www.lacaixa.es/)

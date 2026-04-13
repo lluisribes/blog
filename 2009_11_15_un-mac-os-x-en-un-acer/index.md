@@ -1,0 +1,4 @@
+Efectivamente, los videos que corren por Internet de ordenadores de bajo coste ejecutando OS X son reales como este video.
+
+El modelo es un Acer Aspire One de unos 500€(¿?) y la versión de OSX creo que es la penúltima, un Leopard. El sistema operativo corre sin emulación ninguna, usando el doble núcleo del procesador, la conexión WIFI con el USB y hasta se puede actualizar software con la “Actualización del software” del mismo sistema operativo  
+Obviamente esto no es oficial ni por parte de Acer ni por parte de Apple, pero da una idea de cuanto son de parecidos un portátil Mac a un portátil Acer, y de cuanto de cerca estaría Apple si quisiera vender su sistema OSX para los PC. Sin duda, la prueba Acer estaría superada.

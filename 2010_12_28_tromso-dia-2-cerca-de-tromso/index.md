@@ -1,0 +1,2 @@
+[![](DSC_3671-300x199.jpg)](http://www.lluisribes.net/wp-content/uploads/2010/12/DSC_3671.jpg)  
+Aurora Boreal y nubes en la isla Ringvassøy – [Lluís Ribes i Portillo (CC)](http://creativecommons.org/licenses/by-nc-nd/2.0/)

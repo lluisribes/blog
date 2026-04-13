@@ -1,0 +1,1 @@
+La historia de todas las canciones, prestar atención… (gracias [trompeti](http://trompeti.blogspot.com/) y [deepbit](http://deepbit.blogspot.com/)):

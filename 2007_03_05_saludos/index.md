@@ -1,0 +1,9 @@
+Hola a todos,
+
+desde el viernes la linea de teléfono de casa no da servicio ADSL. La compañía de servicios a Internet dice tener toda su infraestructura correcta y nos remite a la compañía que proporciona la linea. Según parece esta ha cerrado el grifo del ADSL en nuestra linea no sin saber el motivo…
+
+Bueno, mientras recuperamos nuestra conexión casera estoy aprovechando un servicio público de mucho interés: Las [bibliotecas públicas de la Diputación de Barcelona](http://www.diba.es/biblioteques/). Ahora mismo estoy en la de [Gavà](http://www.gavaciutat.net/). Son lugares donde poder consultar revistas, libros, videos, conectarse a Internet, usar el Wifi y muchas otras cosas en un entorno tranquilo, organizado, relajado en fin una mina de paz y conocimiento en un ambiente tan caótico como es el de una ciudad. Pero lo mejor es su concepto: cada biblioteca de una localidad, tiene una autonomía propia, con sus actividades concretas, especializaciones en temáticas, salas y espacios de uso distintos pero un carnet azul común para cada socio que permite disfrutar de todas las bibliotecas indistintamente.  
+A veces pienso en la clave del éxito de las bibliotecas de la Diputación, y creo que se basa en la autonomía de cada centro (con sus recursos propios) pero con un sistema de información común. No sé si voy muy equivocado, pero algo de esto debe tener la fórmula de la gestión de los centros…  
+Por cierto, cambiando de tema, durante estos días me hicieron un control de alcoholemia a las 08:30 de la mañana (hacía una hora que estaba levantado para dirigirme a una quedada de fotos) y a un control de la documentación del coche (en un polígono industrial a primera hora de la tarde). Sinceramente, estos controles me transmiten seguridad, pero a la vez preocupación. ¿Qué cara tengo cuando conduzco?:  
+[![](Foto-23-300x225.jpg)](http://www.lluisribes.net/wp-content/uploads/2007/03/Foto-23.jpg)  
+un abrazo,

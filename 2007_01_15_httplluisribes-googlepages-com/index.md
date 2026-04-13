@@ -1,0 +1,3 @@
+[![](pag-300x242.jpg)](http://www.lluisribes.net/wp-content/uploads/2007/01/pag.jpg)Nueva versión de [mi página web](http://lluisribes.googlepages.com/). He cambiado mi foto tomando el sol en las playas Argentinas por una de más familiar de estas fechas navideñas. También he añadido un par de “gadgets”, una nueva opción de [Google Pages](http://googlepages.com/).La [URL](http://es.wikipedia.org/wiki/URL) de la web es la siguiente:
+
+[http://lluisribes.googlepages.com](http://lluisribes.googlepages.com/)

@@ -1,0 +1,3 @@
+Ha vuelto, con fuerza, al universo de la blogesfera: Ramon vuelve a bloguear. Siempre me gusta que mis amigos tengan presencia en la blogesfera, y encontraba a faltar los artículos que colgaba él en el antiguo blog [Reflexiones Inseguras](http://casiseguro.blogspot.com/) (todavía podéis leerlos) y con mucha menor frecuencia en [CasiSeguro.com](http://www.casiseguro.com/) : artículos sobre la construcción (o deconstrucción) de la sociedad del conocimiento digital, de la tecnología, la educación, la ciencia etc… bien trabajados y reflexionados, con un montón de referencias externas y una red de blogueros que dejaban unos comentarios muy interesantes.Así es, vuelve y os lo recomiendo:
+
+[www.ramonsanguesa.com](http://www.ramonsanguesa.com/)

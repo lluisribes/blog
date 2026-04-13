@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="san_sebastian_2023_lluis_ribes_i_portillo-1534x1024.jpg" alt=""><figcaption>Donostiako Klub Nautikoaren eraikina, Donostia (2023) –&nbsp;<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

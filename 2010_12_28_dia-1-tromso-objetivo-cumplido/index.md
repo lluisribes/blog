@@ -1,0 +1,2 @@
+[![](D2X4163-300x199.jpg)](http://www.lluisribes.net/wp-content/uploads/2010/12/D2X4163.jpg)  
+Aurora boreal en el valle Signaldalen – [Lluís Ribes i Portillo (cc)](http://creativecommons.org/licenses/by-nc-nd/2.0/)

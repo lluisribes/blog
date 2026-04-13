@@ -1,0 +1,19 @@
+{
+  "id": "somia",
+  "title": "Somia",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "excerpt": "Aquell qui no parla pensa i aquell que no parla ni pensa, somia. Somia Lluís Ribes i Portillo\n",
+  "categories": [
+    "poemes"
+  ],
+  "tags": [
+    "poema",
+    "somia"
+  ],
+  "publishedDate": "2017-03-09T00:08:15",
+  "updatedAt": "2017-03-09T00:08:15",
+  "wordpressId": 3499
+}

@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="escala_ateneu_lluis_ribes_i_portillo-1534x1024.jpg" alt=""><figcaption>Ateneu Barcelonès, Barcelona (2023) –&nbsp;<a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo (cc)</a></figcaption></figure>

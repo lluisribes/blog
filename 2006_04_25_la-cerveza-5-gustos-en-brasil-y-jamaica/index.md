@@ -1,0 +1,9 @@
+Brasil
+
+[![](Brahma.jpg)](http://www.lluisribes.net/wp-content/uploads/2006/04/Brahma.jpg)La superfície que tiene [Brasil](http://es.wikipedia.org/wiki/Brasil) hace que sea uno de los países más grandes del mundo, con una población de más de 190 millones de habitantes. Hasta 1925 fue colonia portuguesa, siendo el portugués el idioma principal. A pesar de ello, las cervezas brasileñas tradicionales están basadas una vez más en tradiciones alemanas y checas como las cervezas Pilsener y bock. Con un consumo medio de unos cincuenta litros por persona y año, los brasileños no son unos bebedores de cerveza excepcionales, y sin embargo ocupan el cuarto lugar en el mundo en producción.
+
+El principal grupo cervecero de la región es [InBev](http://www.inbev.com/), el mayor productor de cerveza a nivel mundial. InBev surgió de la fusión entre la brasileña [Compañía de Bebidas de las Américas (AmBev)](http://www.ambev.com.br/) e [Interbrew](http://www.interbrew.be/). Incluso antes de dicha fusión, AmBev ya producía el 30 por ciento de la cerveza consumida en la región. Las principales marcas comercializadas por esta empresa son [Brahma](http://www.brahma.com/), [Skol](http://www.skol.com.br/) y [Antárctica](http://www.antarctica.com.br/) de las cuales el buque insignia a nivel local e internacional es Brahma.
+
+Jamaica  
+
+Esta isla caribeña, al sur de [Cuba](http://es.wikipedia.org/wiki/Cuba), tiene una población de unos dos millones y medio de habitantes que estuvieron bajo las leyes coloniales inglesas, pero ello no ha evitado que la demanda de cerveza sea una lager fría o la stout jamaicana, en parte por la gran demanda que proviene del turismo.

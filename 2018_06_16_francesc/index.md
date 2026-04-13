@@ -1,0 +1,1 @@
+<figure id="attachment_3753" aria-describedby="caption-attachment-3753" style="width: 1258px"><a href="http://www.lluisribes.net/wp-content/uploads/2018/06/francesc_lopez_blog.jpg"><img loading="lazy" decoding="async" src="francesc_lopez_blog.jpg" alt="Francesc López"></a><figcaption id="caption-attachment-3753">Francesc López – (cc) LLuís Ribes i Portillo</figcaption></figure>

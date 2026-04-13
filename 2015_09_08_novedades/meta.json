@@ -1,0 +1,21 @@
+{
+  "id": "novedades",
+  "title": "Novedades en la web",
+  "status": "published",
+  "authors": [
+    "lluisadm"
+  ],
+  "excerpt": "Hola! hoy ya se ha activado las nuevas modificaciones de la web y del blog http://www.lluisribes.net. A parte de actualizar todos los componentes para que sea más seguro y rápido navegar por él, los cambios más significativos son: Una remodelación integral de la página principal con fotografías mías de fondo como pase de diapositivas. En el menú &#8230; \nLlegir més&#8230;\n",
+  "categories": [
+    "articulos"
+  ],
+  "tags": [
+    "blog",
+    "Lluís Ribes",
+    "novedades",
+    "web"
+  ],
+  "publishedDate": "2015-09-08T22:28:39",
+  "updatedAt": "2015-09-08T22:28:39",
+  "wordpressId": 3003
+}

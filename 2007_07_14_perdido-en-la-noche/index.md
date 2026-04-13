@@ -1,0 +1,1 @@
+[![Perdido en la noche](512113159_8143f3b955_o-193x300.jpg)](http://flickr.com/photos/alfonstr/512113159/ "Compartilhamento de fotos")foto de [Alfons](http://flickr.com/photos/alfonstr). Para conocer más sobre la historia de esta foto, [pinchar aquí](http://flickr.com/photos/alfonstr/512113159/)

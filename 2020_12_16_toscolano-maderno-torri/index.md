@@ -1,0 +1,1 @@
+<figure><img loading="lazy" decoding="async" src="toscolano-maderno-torri_lluis_ribes_i_portillo.jpg" alt="Ojo de buey"><figcaption>Toscolano-Maderno Torri (2020) – <a href="https://creativecommons.org/licenses/by-nc-nd/3.0/" target="_blank" rel="noreferrer noopener">Lluís Ribes i Portillo – (cc)</a></figcaption></figure>

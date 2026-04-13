@@ -1,0 +1,2 @@
+[![](Cartell-Cal-C3-A7ots-2008-4-212x300.jpg)](http://www.lluisribes.net/wp-content/uploads/2008/01/Cartell-Cal-C3-A7ots-2008-4.jpg)  
+Ala, y va la cuarta ya! Si váis a estar por Valencia el fin de semana del 23 F, que mejor que pasar a tomar unos calçots! Para más información: [calcotadapopular.blogspot.com](http://calcotadapopular.blogspot.com/)

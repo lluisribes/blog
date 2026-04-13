@@ -1,0 +1,14 @@
+Me han pasado este video sobre un veterano militar americano (Mike Prysner) que hace una denuncia de la guerra abierta y contundente (aunque al final creo que mezcla peras con manzanas al hablar de la crisis hipotecaria…).
+
+[  
+¡Ver en mi móvil!](rtsp://v3.cache4.c.youtube.com/CkELENy73wIaOAnDtN6R-JRF9hMYDSANFEIJbXYtZ29vZ2xlSARSBXdhdGNoWglDbGlja0xpbmtgoMLIi8fP26pKDA==/0/0/0/video.3gp)
+
+Puede ser un video que nos puede sonar más de lo mismo, tópico y recurrente. Pero es que las verdades de la guerra son así y nunca están mal recordarlas. Gracias meritxell.  
+Este video, también me lleva a recordaros [un post que puse hace un año alrededor del corresponsal de guerra Miguel Gil Moreno](http://lluisr.blogspot.com/2008/12/miguel-gil-moreno.html). En este post, destaco el [segundo video que es un resumen de un reportaje suyo de la guerra de Kosovo](http://www.youtube.com/watch?v=SlEoqL2KA-o&feature=player_embedded).  
+Son unas imágenes impactantes (a pesar de que le sobra la música), que me han recordado a la exposición [FotoPres](http://obrasocial.lacaixa.es/exposiciones/fotopres09_es.html) en el [Caixa Fòrum](http://obrasocial.lacaixa.es/) y que me sirve para continuar con una charla de sobremesa de este fin de seman. En esta sobremesa expresé el poco interés que me despertó la exposición FotoPres. Y caigo en una contradicción con todo lo dicho hasta ahora en este artículo, pero no se si la escenografía no me pareció adecuada, o el montaje o e lugar, pero no me emocionó como por ejemplo lo hace siempre cuando veo el video que os he comentado de [Miguel Gil Moreno](http://es.wikipedia.org/wiki/Miguel_Gil_Moreno). Vaya, quizá tenga que volver a visitar el FotoPres…  
+Pero a pesar de ello, ya sabemos que la fotografia y el video son dos medios de comunicación distintos, pero opino que la fotografía de reportaje debe estar mucho más reforzada con información complementaria como son textos (en el FotoPres los había), testimonios, y por qué no videos, para que la fotografía no sea nunca la protagonista. Una fotografía estéticamente impactante nos conmueve pero quizá nos esconde la historia que hay detrás.  
+Por acabar y respecto la fotografia, el mismo día que estuve en el visité una segunda exposición de la fotografía de deporte de Avelino Pi, un fotógrafo que ha dedicado los últimos 30 años a esta modalidad de foto, exposición que la disfruté más:
+
+[  
+](http://images.google.es/images?hl=es&safe=off&client=firefox-a&rls=org.mozilla:es-ES:official&hs=bnN&um=1&q=avelino+pi&sa=N&start=0&ndsp=20)[Avelino Pi: en el lugar adecuado, en el momento justo](http://www.quesabesde.com/noticias/avelino-pi-exposicion-caixaforum,1_4393)  
+[Fotos google Avelino Pi](http://images.google.es/images?hl=es&safe=off&client=firefox-a&rls=org.mozilla:es-ES:official&hs=bnN&um=1&q=avelino+pi&sa=N&start=0&ndsp=20)

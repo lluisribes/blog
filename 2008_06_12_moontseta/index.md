@@ -1,0 +1,5 @@
+[![](2564850400_a0dc5beef6_m.jpg)](http://www.lluisribes.net/wp-content/uploads/2008/06/2564850400_a0dc5beef6_m.jpg)
+
+Gracias [Montse](http://moontseta.blogspot.com/) [por dedicarnos un rinconcito en tu web.](http://moontseta.blogspot.com/2008/06/cada-freak-te-un-lloc-i-jo-he-trobat-el.html) Cuando te apuntas a las salidas de fotos, te encanta aprender fotografía, como lo hago yo con tus técnicas para [caracterizarte y retratarte](http://flickr.com/photos/vilimelis/collections/72157600715156822/), te encanta admirar los trabajos de otras personas, como hago con todo [tu gigantesco microcosmos que tienes en tu web](http://flickr.com/photos/vilimelis/collections/), te encanta compartir tu tiempo, como lo hago siempre con el tuyo, pero lo que más te gusta es hacer amistades, como la tuya.
+
+[![](Moontseta-300x225.jpg)](http://flickr.com/photos/vilimelis/collections/72157600715156822/)

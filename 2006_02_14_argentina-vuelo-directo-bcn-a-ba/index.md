@@ -1,0 +1,11 @@
+[![](AerolineasArgentina2.0-300x134.jpg)](http://www.lluisribes.net/wp-content/uploads/2006/02/AerolineasArgentina2.0.jpg)
+
+Si tenéis que viajar desde [Barcelona](http://www.lluisribes.net/www.bcn.es) a [Buenos Aires](http://www.lluisribes.net/es.wikipedia.org/wiki/Buenos_Aires), os recomiendo que consultéis pasaje para el vuelo directo desde Barcelona con [Aerolineas Argentina](http://www.aerolineas.ar.com/). Sí, sin escala en [Madrid](http://www.madrid.es/) ni [Rio](http://www.lluisribes.net/en.wikipedia.org/wiki/Rio_de_Janeiro) ni ninguna otra ciudad, 13000 km de una tacada.
+
+Y es que Aerolineas tiene desde septiembre del 2005 un vuelo regular cada semana de ida y vuelta entre estas dos ciudades, que se agradece mucho porque quizá lo peor de los vuelos intercontinentales son los transbordos: esperas en el aeropuerto, pérdida de equipajes, prisas en el cambio de avión… Si se puede evitar todo esto y además es un avión que tiene un buen espacio entre los asientos de la clase turista ([Airbus 340](http://en.wikipedia.org/wiki/Airbus_A340))y la tripulación es atenta y profesional es un viaje muy agradable.
+
+Este vuelo, hasta el día de hoy, sale los miercoles y la vuelta también se realiza los miercoles. Quizá este es uno de los dos inconvenientes más importantes, que no hay más vuelos directos desde Barcelona. El otro problema, es que cuatro días antes de volver (si se tiene el pasaje de vuelta con Aerolineas) hay que llamar a Aerolineas o pasarse por alguna de sus oficinas de esta para confirmar la plaza de vuelta. La gestión es muy rápida, aunque no se porque lo hacen, igual que el tener que pagar tasas en el aeropuerto argentino una vez que has facturado la maleta…(aunque esto de las tasas afecta a todas las compañías)
+
+Así pues, si lo que se desea es hacer un viaje desde Barcelona y no hay problema por salir y volver un miercoles así como de hacer una llamadita antes de la vuelta, tomar este vuelo es muy recomendable. En cualquier otro caso, se puede agarrar vuelos desde Barcelona de [Iberia](http://www.iberia.es/), [Air France](http://www.lluisribes.net/www.airfrance.com) etc, que los hay diarios, pero con paradas y transbordos por medio.
+
+¡Buen viaje!

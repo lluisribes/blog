@@ -1,0 +1,23 @@
+{
+  "id": "dos-nuevos-blogs",
+  "title": "Dos nuevos blogs",
+  "status": "published",
+  "authors": [
+    "lluisribes"
+  ],
+  "excerpt": "Hola, acabo de actualizar mi lista de blogs con dos nuevas entradas: La mandarina de Newton Blog de Irene Lapuente en donde nos acerca a la ciencia con una divulgación amena, directa y sencilla pero a la vez completa de aquellos misterios que en realidad no los son tanto si nos lo explican como lo &#8230; \nLlegir més&#8230;\n",
+  "categories": [
+    "articulos"
+  ],
+  "tags": [
+    "blog",
+    "blogs",
+    "citilab",
+    "irene lapuente",
+    "lavinia",
+    "Xavier Capdevila"
+  ],
+  "publishedDate": "2009-09-29T19:34:00",
+  "updatedAt": "2009-09-29T19:34:00",
+  "wordpressId": 367
+}
